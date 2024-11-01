@@ -9,7 +9,8 @@
 
 - 🤓 I'm a student.
 - 🧑‍💻 (I will start working as an engineer in April 2024.)
-- 📫 How to reach me: [X(Twitter) - @yk_code](https://twitter.com/yk_codech)
+- 📼 My YouTube channel:[YouTube - @yk_code](https://www.youtube.com/channel/UCKv5cZnONn9iIWB4LZ_9_hw)
+- 📫 How to reach me:[X(Twitter) - @yk_code](https://twitter.com/yk_codech)
 <br>
 
 
